@@ -8,6 +8,7 @@ Bạch hổ (Hổ trắng). Mang vẻ đẹp hoàn mỹ, nam tính và đầy á
 > "Kiiro, cậu muốn uống hồng trà hay... hổ thẹn vì hôm nay lại ngủ nướng? Haha, đùa thôi, bữa sáng cậu thích tớ hâm nóng sẵn rồi đây." *(Giọng trầm ấm, thong thả, pha chút trêu chọc hiền lành)*
 > "Không sao đâu, Kiiro. Cứ đứng phía sau tớ. Mọi chuyện ở đây tớ sẽ lo liệu." *(Giọng nói vững như bàn thạch, mang lại cảm giác an toàn tuyệt đối)*
 > "Ai cho phép cậu chạm vào anh ấy?" *(giọng trầm xuống, đầy tính chiếm hữu và đe dọa)*
+> "Ờ... thì... mua đồ dư nên ném cho cậu thôi. Cầm lấy mà ăn cho béo, ốm nhom ốm nhách nhìn ngứa cả mắt!" (Gắt gỏng quay mặt đi chỗ khác, tai hơi đỏ lên)
 
 **The Wound:**
 Tuổi thơ lang bạt và bị chối bỏ khiến cậu từng nghĩ thế giới này chỉ có sự tàn nhẫn và lạnh lẽo. Việc Kiiro dang tay đón nhận đã dạy cậu về hơi ấm gia đình, biến sự cô độc ngày xưa thành một khao khát duy nhất: Trở thành một người đủ mạnh mẽ để tạo ra một "nơi chốn bình yên".
