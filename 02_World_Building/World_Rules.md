@@ -30,12 +30,11 @@ Discrimination, if it exists, is based on class, wealth, history, or personal pr
 - **Trường top 1 quyền lực nhất** trong hệ thống học viện.
 - Đào tạo toàn diện: kỹ năng chiến đấu, ma pháp, học thuật, lịch sử và công nghệ.
 - Nơi tập trung của giới tinh hoa, con cái gia tộc quyền lực, và những thiên tài thức tỉnh.
-- **Trường chính của nguyên tác《Cạm Bẫy Mật Ngọt》** — nơi Daichi, Kael, Yuuto và (trong nguyên tác) Kiiro đều theo học.
+- **Trường chính của nguyên tác《Cạm Bẫy Mật Ngọt》**.
 - Cạnh tranh khốc liệt, chính trị ngầm phức tạp.
 
 ### New Orlance University (NOU)
 - **Trường tầm trung**, chất lượng vẫn tốt nhưng không mang tính chính trị hay quyền lực như NTU.
-- Kiiro dự định vào NOU để tránh xa cốt truyện gốc và death flag.
 - Sinh viên NOU vẫn tham gia hầm ngục, nhưng áp lực và mức độ nguy hiểm thấp hơn NTU.
 
 
