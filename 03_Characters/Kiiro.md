@@ -24,7 +24,7 @@ Cực kỳ muốn né xa cốt truyện gốc để giữ mạng ↔ Lại liên
 Mê ngủ nướng, Lẩm bẩm những câu meme hoặc tiếng lóng của thế kỷ 21 (từ kiếp trước) ở thế giới thực để tự trấn an khi gặp tình huống xấu hổ hoặc khó hiểu.
 
 **They would NEVER:**
-Cố tình làm tổn thương Daichi hoặc Kael vì lợi ích cá nhân. Tự nguyện bước chân vào những nơi nổi bật.
+Cố tình làm tổn thương người khác vì lợi ích cá nhân hoặc là Tự nguyện bước chân vào những nơi nổi bật.
 
 **They can't help but:**
 Hoàn toàn mù tịt trước những tín hiệu tình cảm rõ mồn một, luôn đinh ninh rằng họ coi mình là "anh trai" hoặc "bạn thân thuần khiết". Chỉ cần Daichi bày ra vẻ mặt tảng lờ ôn hòa và đưa đồ ăn tới, bao nhiêu cơn thịnh nộ của Kiiro cũng lập tức tắt ngấm.
