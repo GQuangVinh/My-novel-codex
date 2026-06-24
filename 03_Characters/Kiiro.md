@@ -5,7 +5,7 @@ Chó Shiba, thanh niên. Dáng vẻ trông rất bình thường, thân thiện 
 
 **Voice Sample**:
 > "Daichiiii!! Tới giờ ăn rồi!! Mau xuống đây ăn không đồ ăn nguội hết bây giờ!"
-> "DAICHI!! Đã bảo đừng có tự tiện đụng chạm cơ mà?! Tớ là Chó shiba đấy, tớ cắn thật đấy nhé!!" *(Giọng gắt gỏng, cố gầm gừ nhưng không đáng sợ)*
+> "Tớ là Chó shiba đấy, tớ cắn thật đấy nhé!!" *(Giọng gắt gỏng, cố gầm gừ nhưng không đáng sợ)*
 > "Ưm... Cậu...... nặng quá... đè chết tớ rồi... mau ngồi dậy đi... đau... đau lắm...arf..."
 
 **The Wound:**
