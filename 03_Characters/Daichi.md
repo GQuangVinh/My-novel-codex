@@ -5,7 +5,7 @@ Bạch hổ (Hổ trắng). Mang vẻ đẹp hoàn mỹ, nam tính và đầy á
 
 **Voice Sample**:
 > "Kiiro... hôm nay tớ ngủ chung với cậu được không? Trời lạnh quá..." *(giọng nũng nịu, vô hại)*
-> "Kiiro, cậu muốn uống hồng trà hay... hổ thẹn vì hôm nay lại ngủ nướng? Haha, đùa thôi, bữa sáng cậu thích tớ hâm nóng sẵn rồi đây." *(Giọng trầm ấm, thong thả, pha chút trêu chọc hiền lành)*
+> *(Giọng trầm ấm, thong thả, pha chút trêu chọc hiền lành)*
 > "Không sao đâu, Kiiro. Cứ đứng phía sau tớ. Mọi chuyện ở đây tớ sẽ lo liệu." *(Giọng nói vững như bàn thạch, mang lại cảm giác an toàn tuyệt đối)*
 > "Ai cho phép cậu chạm vào anh ấy?" *(giọng trầm xuống)*
 > "Ờ... thì... mua đồ dư nên ném cho cậu thôi. Cầm lấy mà ăn cho béo, ốm nhom ốm nhách nhìn ngứa cả mắt!" (Gắt gỏng quay mặt đi chỗ khác, tai hơi đỏ lên)
